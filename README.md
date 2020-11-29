@@ -1,0 +1,1 @@
+Chicken Caesar Salad, a classic chicken salad recipe, featuring crunchy croutons and a creamy, garlic dressing.
